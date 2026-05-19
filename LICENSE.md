@@ -1,4 +1,4 @@
-# 
+# automatic bot de negociação NFT executor é o melhor bot de negociação NFT executor com nós RPC privados e oportunidades de arbitragem. Seguro, confiável e otimizado para
 
 
 
